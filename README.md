@@ -1,4 +1,4 @@
-### Olá Sou Herbet-Primo*
+### Olá Sou Herbet-Primo.
 
 Apaixonado por Ciência e Análise de Dados.
 
